@@ -1,1 +1,1 @@
-![cooltext475830772709343](https://github.com/user-attachments/assets/0fd205f1-d225-4f89-be54-50f657a42ba5)
+![cooltext475830834931829](https://github.com/user-attachments/assets/ce2f76c5-0604-4696-8aa8-040b518a9522)
